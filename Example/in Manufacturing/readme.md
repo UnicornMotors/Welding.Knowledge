@@ -1,1 +1,3 @@
 - [How Experience Welder Build a Custom Fuel Tank for Semi-Truck with Limited Equipment](https://youtu.be/iDBcMJVB96c)
+- [Manufacturing Process of Bricks Making Machine With 4 Moulds Rows || Mobile Bricks Machine](https://youtu.be/ReqqmQD7gF8)
+- 
