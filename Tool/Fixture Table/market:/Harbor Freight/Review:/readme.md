@@ -1,0 +1,1 @@
+- [The NEW Harbor Freight Welding Fixture Table](https://youtu.be/LCGAOPb8Q6g)
