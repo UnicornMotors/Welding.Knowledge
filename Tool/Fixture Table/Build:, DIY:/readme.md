@@ -1,1 +1,2 @@
 - [Homemade Welding Fixture Table + Storage Hack — Built for my Home Garage Shop](https://youtu.be/1F1qezitiN4)
+- [How to Build a Flat Welding Table. The lost footage found Retro Video](https://youtu.be/EDeIq3SZNRs)
