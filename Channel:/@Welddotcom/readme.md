@@ -6,4 +6,6 @@ https://m.youtube.com/@Welddotcom
 - [MIG Welding Thin Metal Without Blowing Holes](https://youtu.be/GohkOwMcltY)
 - [What Pros Know About Stick Welding Electrodes](https://youtu.be/jgSQ5s8VE3U)
 - [The EASIEST Way To Stick Weld Square Tubing](https://youtu.be/TVWdZvbCWx4)
+- [🔥 Stick Welding Square Tube](https://youtu.be/n5JOzxJFnbk)
+- [STICK WELDING 101: Getting Started With SMAW](https://youtu.be/4MKuUICV6-c)
 - 
