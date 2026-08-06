@@ -11,3 +11,4 @@ https://m.youtube.com/@Welddotcom
 - [Essential Tips for New Welders to Strike Perfect Arcs](https://youtu.be/rv2d0v7ksII)
 - [How Not To Stick Weld! Avoid These Beginner Mistakes](https://youtu.be/8U8ZNNR39lo)
 - [Welding Myths That Are Completely Wrong (Most People Believe Them)](https://youtu.be/sC2RjZDeFfU)
+- [Stainless Stick Welding Flat & Vertical: 309L-16 vs 309L-17](https://youtu.be/YZHZPdK9PT8)
