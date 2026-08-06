@@ -3,9 +3,12 @@ https://m.youtube.com/@AutoExpertJC
 # graph
 ## Safety
 - [How to die while arc welding at home: the top 5 ways | Auto Expert John Cadogan](https://youtu.be/2hAJJky4KAQ)
-
 Comment:
 https://www.youtube.com/watch?v=2hAJJky4KAQ&lc=UgyNXxIjs0ZhQaJDZ054AaABAg
+
+- [5 more excellent ways to DIE while welding at home | Auto Expert John Cadogan](https://youtu.be/pvPD00F_pOg)
+- [Cheap DIY welding table from scrap steel (under $200) | Auto Expert John Cadogan](https://youtu.be/D_AWLHdgOL0)
+- 
 
 >@jpeabody1155
 2 years ago
