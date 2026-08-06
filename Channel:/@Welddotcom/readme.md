@@ -8,4 +8,4 @@ https://m.youtube.com/@Welddotcom
 - [The EASIEST Way To Stick Weld Square Tubing](https://youtu.be/TVWdZvbCWx4)
 - [🔥 Stick Welding Square Tube](https://youtu.be/n5JOzxJFnbk)
 - [STICK WELDING 101: Getting Started With SMAW](https://youtu.be/4MKuUICV6-c)
-- 
+- [Essential Tips for New Welders to Strike Perfect Arcs](https://youtu.be/rv2d0v7ksII)
