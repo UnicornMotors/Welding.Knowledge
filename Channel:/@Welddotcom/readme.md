@@ -9,3 +9,5 @@ https://m.youtube.com/@Welddotcom
 - [🔥 Stick Welding Square Tube](https://youtu.be/n5JOzxJFnbk)
 - [STICK WELDING 101: Getting Started With SMAW](https://youtu.be/4MKuUICV6-c)
 - [Essential Tips for New Welders to Strike Perfect Arcs](https://youtu.be/rv2d0v7ksII)
+- [How Not To Stick Weld! Avoid These Beginner Mistakes](https://youtu.be/8U8ZNNR39lo)
+- [Welding Myths That Are Completely Wrong (Most People Believe Them)](https://youtu.be/sC2RjZDeFfU)
