@@ -5,3 +5,5 @@ https://m.youtube.com/@Welddotcom
 - [Most Welders Don't Know How To Use A Square](https://youtu.be/f-gQrteFV1M)
 - [MIG Welding Thin Metal Without Blowing Holes](https://youtu.be/GohkOwMcltY)
 - [What Pros Know About Stick Welding Electrodes](https://youtu.be/jgSQ5s8VE3U)
+- [The EASIEST Way To Stick Weld Square Tubing](https://youtu.be/TVWdZvbCWx4)
+- 
