@@ -12,3 +12,4 @@ https://m.youtube.com/@Welddotcom
 - [How Not To Stick Weld! Avoid These Beginner Mistakes](https://youtu.be/8U8ZNNR39lo)
 - [Welding Myths That Are Completely Wrong (Most People Believe Them)](https://youtu.be/sC2RjZDeFfU)
 - [Stainless Stick Welding Flat & Vertical: 309L-16 vs 309L-17](https://youtu.be/YZHZPdK9PT8)
+- [How NOT to MIG Weld Stainless Steel](https://youtu.be/TQkSGtqJNh4)
